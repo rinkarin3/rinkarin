@@ -1,0 +1,2 @@
+# rinkarin
+how to get 
